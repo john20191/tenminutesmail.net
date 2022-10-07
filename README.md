@@ -1,0 +1,2 @@
+# tenminutesmail.net
+tenminutesmail.net
